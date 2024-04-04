@@ -1,7 +1,7 @@
 # Presentacion
 
 
-Hola soy Felipe Pampin. Tengo 19 años, me gusta comer, ir al gimnasio, los autos y dormir. Team frio siempre. 
+Hola soy Felipe Pampin. Tengo 19 años, me gusta comer, ir al gimnasio, los autos y dormir. Si tengo que elegir una marca favorita de autos diria alguna europea. Team frio siempre. 
 
 Legajo: 213.966-2
 
